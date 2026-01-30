@@ -1,0 +1,2 @@
+# 0.0_Emergence_to_Black_Holes-Interstellar_Cycles_from_Tension_Gradients_to_Sinks
+0.0_Emergence_to_Black_Holes_Interstellar_Cycles_from_Tension_Gradients_to_Sinks
